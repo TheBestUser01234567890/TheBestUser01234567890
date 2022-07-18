@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on A OPERATING SYSTEM!!!!!!!!!!!!!!
 - 📫 How to reach me ...
 
-markdown markup
+My YouTube channel (subscribe if you like my projects): https://www.youtube.com/channel/UCEpEtXi8A2LclKfdXb_mmNQ
+
+markdown markup LLLLOOOOOOOOOLLLLLLL XD
 
 <!---
 TheBestUser01234567890/TheBestUser01234567890 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
