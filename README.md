@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheBestUser01234567890
 - 👀 I’m interested in OPERATING SYSTEMS!!!!!!!!!
 - 🌱 I’m currently learning C#, C++, C, Python, JavaScript, VBScript, Batch
-- 💞️ I’m looking to collaborate on A OPERATING SYSTEM!!!!!!!!!!!!!!
+- 💞️ I’m looking to collaborate on CarbonOS
 - 📫 How to reach me ...
 
 markdown markup LLLLOOOOOOOOOLLLLLLL XD
